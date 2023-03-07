@@ -109,5 +109,5 @@ Education and Courses
 Languages
 ---------
 
-Russian - native
+Russian - native  
 English - B1/B2 depend on topic that we are speaking. I took the lessons on Preply with native speakers and got a good experience in speaking. Unfortunatly, each language have to be spoken to stay on the same level. I can easely read books pre-intermediate and intermediate levels. But I don't have speaking practice right now.
